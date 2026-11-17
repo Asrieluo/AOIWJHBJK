@@ -1,3 +1,4 @@
+[doc. read.](https://docs.google.com/document/d/1o_fls11K4j3EC7iLGpSab5qyGbIMWlzOlPUlq4oOF0U/edit?usp=drivesdk)
 <img width="350" align=left alt="JUMPER who" src="https://github.com/user-attachments/assets/2ed897ac-bab6-4e70-9501-a0f6cbefd169" />
 
 
