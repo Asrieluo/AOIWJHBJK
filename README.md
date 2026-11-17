@@ -4,8 +4,10 @@
 
 
 <details>
-  <summary> $${\color{#cfb8cc} \space  ࣪ ˖ cl𝓘ck　 \space fo u  \space \space r \space my  .˚\space 𝑙I𝓝K𝑠 \space  ◔◡◔　 ׅ  　 ·}$$</summary>
+  <summary> <img width="20" alt="who dat peeking" src="https://github.com/user-attachments/assets/4d6bc9bd-f5b2-42c5-ac82-7575277b5150" />
+ $${\color{#cfb8cc} \space  ࣪ ˖ cl𝓘ck　 \space fo u  \space \space r \space my  .˚\space 𝑙I𝓝K𝑠 \space  ◔◡◔　 ׅ  　 ·}$$</summary>
 
+<img width="20" alt="cute" src="https://github.com/user-attachments/assets/e13f2144-60f7-4bdb-b9d2-1b40fca8f485" />
 $${\color{#eeced1} \space •　ω　• ࣪  \space  ࣪ ˖ 　 ma k e　 \space sure  \space 2   　 . \space re a d \space my \space fluffle .˚\space A N D   　\space sign \space  A ta ! ⊹ ࣪　 ׅ}$$
 
 
