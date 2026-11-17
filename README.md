@@ -7,8 +7,7 @@
   <summary> <img width="20" alt="who dat peeking" src="https://github.com/user-attachments/assets/4d6bc9bd-f5b2-42c5-ac82-7575277b5150" />
  $${\color{#cfb8cc} \space  ࣪ ˖ cl𝓘ck　 \space fo u  \space \space r \space my  .˚\space 𝑙I𝓝K𝑠 \space  ◔◡◔　 ׅ  　 ·}$$</summary>
 
-<img width="20" alt="cute" src="https://github.com/user-attachments/assets/e13f2144-60f7-4bdb-b9d2-1b40fca8f485" />
-$${\color{#eeced1} \space •　ω　• ࣪  \space  ࣪ ˖ 　 ma k e　 \space sure  \space 2   　 . \space re a d \space my \space fluffle .˚\space A N D   　\space sign \space  A ta ! ⊹ ࣪　 ׅ}$$
+<img width="30" alt="I l I l I l" src="https://github.com/user-attachments/assets/46e6a648-47ae-417f-83a8-84a54c4a4072" />$${\color{#eeced1} \space •ω• ࣪  \space  ࣪ ˖ 　 ma k e　 \space sure  \space 2   　 . \space re a d \space my \space fluffle .˚\space A N D   　\space sign \space  A ta ! ⊹ ࣪　 ׅ}$$
 
 
 [<img width="60" src="https://github.com/user-attachments/assets/590afec3-35a4-4223-aaef-52433d16bacf">](https://goodboi.atabook.org)
