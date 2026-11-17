@@ -4,6 +4,6 @@
 
 
 <details>
-  <summary> $${\color{#ffdffa} \space  ࣪ ˖ click　 \space fou \quav r \space my  .˚\space 𝑙i𝑛k𝑠 \space  ◔◡◔　 ׅ  　 ·}$$</summary>
+  <summary> $${\color{#ffdffa} \space  ࣪ ˖ click　 \space fou \spacespace r \space my  .˚\space 𝑙i𝑛k𝑠 \space  ◔◡◔　 ׅ  　 ·}$$</summary>
 
 hehe
