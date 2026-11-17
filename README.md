@@ -24,3 +24,13 @@ $${\color{#eeced1} \space •　ω　• ࣪  \space  ࣪ ˖ 　 ma k e　 \spac
   $${\color{#f2dbd3} ( ˘͈ ᵕ ˘͈♡)       \space I've \space got \space big \space ! \space  \space ! ׅ}$$
  
  <img width="20" alt="nota" src="https://github.com/user-attachments/assets/9a5266ef-cfaf-44cd-b456-2b2126e01630" /> $${\color{#fffff1} Ex \space pectations      \space !' 𓏼  ׅ}$$
+
+
+</td>
+</tr>
+</table>
+ <img width="272" alt="asrieluo" src="https://github.com/user-attachments/assets/c82f3389-affe-4c98-b240-98ed433d7307" />
+
+<a href="https://hits.sh/GitHub.com/asrieluo/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/asrieluo/hits.svg?style=flat-square&label=a%20a%20a%20%E2%80%9C(%E3%83%8E%20_%20%3C%2C%2C%20)&extraCount=2762&color=f3e2d6&labelColor=55555"/></a> 
+       𑄝   $${\color{#ceb8cc} so mething  ׅ}$$ <img width="20" alt="asriel u see this rih no ok" src="https://github.com/user-attachments/assets/c8166698-775a-4a3d-8a52-56f91081129d" />
+
