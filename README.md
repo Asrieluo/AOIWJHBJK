@@ -9,9 +9,9 @@
 
 <details>
   <summary> <img width="20" alt="who dat peeking" src="https://github.com/user-attachments/assets/4d6bc9bd-f5b2-42c5-ac82-7575277b5150" />
- $${\color{#cfb8cc} \space  ࣪ ˖ cl𝓘ck　 \space fo u  \space \space r \space my  .˚\space 𝑙I𝓝K𝑠 \space  ◔◡◔　 ׅ  　 ·}$$</summary>
+ $${\color{#cfb8cc} \space  ࣪ ˖ cl𝓘ck　 \space for \space my  .˚\space 𝑙ink𝑠 \space  ◔◡◔　 ׅ  　 ·}$$</summary>
 
-<img width="30" alt="I l I l I l" src="https://github.com/user-attachments/assets/46e6a648-47ae-417f-83a8-84a54c4a4072" />$${\color{#eeced1} \space •ω• ࣪  \space  ࣪ ˖ 　 ma k e　 \space sure  \space 2   　 . \space re a d \space my \space fluffle .˚\space A N D   　\space sign \space  A ta ! ⊹ ࣪　 ׅ}$$ <img width="10" alt="AHIJAHHII hHHAA" src="https://github.com/user-attachments/assets/7e177c26-fbee-4a36-83f0-7bf58acdc61b" />
+<img width="30" alt="I l I l I l" src="https://github.com/user-attachments/assets/46e6a648-47ae-417f-83a8-84a54c4a4072" />$${\color{#eeced1} \space •ω• ࣪  \space  ࣪ ˖ 　 check \space my \space prns \space and \space sign \space ata }$$ <img width="10" alt="AHIJAHHII hHHAA" src="https://github.com/user-attachments/assets/7e177c26-fbee-4a36-83f0-7bf58acdc61b" />
 
 
 
