@@ -1,6 +1,6 @@
 
 
-<img width="300" align=left alt="JUMPER who" src="https://github.com/user-attachments/assets/2ed897ac-bab6-4e70-9501-a0f6cbefd169" />
+<img width="350" align=left alt="JUMPER who" src="https://github.com/user-attachments/assets/2ed897ac-bab6-4e70-9501-a0f6cbefd169" />
 
 
 
@@ -33,8 +33,8 @@
 </td>
 </tr>
 </table>
- <img width="292" height="80" alt="pareo" src="https://github.com/user-attachments/assets/c82f3389-affe-4c98-b240-98ed433d7307" />
+ <img width="300" alt="pareo" src="https://github.com/user-attachments/assets/c82f3389-affe-4c98-b240-98ed433d7307" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://hits.sh/GitHub.com/asrieluo/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/asrieluo/hits.svg?style=flat-square&label=a%20a%20a%20%E2%80%9C(%E3%83%8E%20_%20%3C%2C%2C%20)&extraCount=2762&color=f3e2d6&labelColor=55555"/></a> 
+ㅤ<a href="https://hits.sh/GitHub.com/asrieluo/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/asrieluo/hits.svg?style=flat-square&label=a%20a%20a%20%E2%80%9C(%E3%83%8E%20_%20%3C%2C%2C%20)&extraCount=2762&color=f3e2d6&labelColor=55555"/></a> 
    𑄝    $${\color{#ceb8cc} so mething  ׅ}$$ <img width="20" alt="pareo u see this rih no ok" src="https://github.com/user-attachments/assets/c8166698-775a-4a3d-8a52-56f91081129d" />
 
